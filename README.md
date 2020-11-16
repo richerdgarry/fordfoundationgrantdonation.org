@@ -1,2 +1,1 @@
-# fordfoundationgrantdonation.org
-Leading innovation.
+
